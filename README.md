@@ -5,3 +5,5 @@ Proyecto 5: Joyería de Ensueño
 ![Captura355780](https://user-images.githubusercontent.com/121249471/234735150-88faaa2e-76d9-4a72-b598-a530cba89b04.PNG)
 ![CapturaTXYTUYYU](https://user-images.githubusercontent.com/121249471/234735848-9ebe3b37-eb15-4bab-b57d-7b6ff21f26e4.PNG)
 ![CapturaYYTTYT](https://user-images.githubusercontent.com/121249471/234735852-8b357b38-ff6f-4a81-9f2a-24efd570266b.PNG)
+https://mygrati65.wordpress.com/22-2/
+https://drive.google.com/file/d/1T5n7JJNSPl92oCUIW2hJbaP4_4Iph2vz/view?usp=sharing
